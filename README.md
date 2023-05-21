@@ -1,2 +1,2 @@
 ### 👋 Hi, I'm Mikhail. Full-Stack Developer.
-### 📧 For bussiness inquiries: fflensys@gmail.com
+### 📧 For bussiness inquiries: gmail@gmail.com
